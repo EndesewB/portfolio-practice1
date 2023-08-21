@@ -1,1 +1,1 @@
-# portfolio-practice1
+Easymine project comming soon
